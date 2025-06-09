@@ -4,6 +4,8 @@ I'm a fullstack developer who makes too many websites. I mostly work with VueJS 
 I code in JS/TS, and Python.
 
 Sometimes I code in C#.
+
+
 I'm fine with any pronouns.
 
 ## Studying
