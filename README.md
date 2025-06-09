@@ -16,5 +16,6 @@ or you could ping me on discord: @soupbyte
 
 ### I hate social media platforms!
 
+## Any cool facts about me?
 
-#### space is cool!
+uhhhh... I'm french...
