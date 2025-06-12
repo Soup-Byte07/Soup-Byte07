@@ -10,7 +10,7 @@ I'm fine with any pronouns.
 
 ## Studying
 
-Right now I'm studing Java, it seems cool
+Right now I'm studying Java, it seems cool
 
 ## Wanna talk to this freak?
 📧 You can reach me here soupbyte30@gmail.com
