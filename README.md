@@ -18,6 +18,11 @@ or you could ping me on discord: @soupbyte
 
 ### I hate social media platforms!
 
+
+## Wanna buy me coffee? ☕
+I would like that
+https://ko-fi.com/soupbyte
+
 ## Any cool facts about me?
 
 uhhhh... I like stars...
