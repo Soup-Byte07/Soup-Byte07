@@ -23,6 +23,9 @@ or you could ping me on discord: @soupbyte
 I would like that
 https://ko-fi.com/soupbyte
 
+here is another for some weird reason
+https://coff.ee/soupbyte
+
 ## Any cool facts about me?
 
 uhhhh... I like stars...
